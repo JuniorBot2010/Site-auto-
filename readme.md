@@ -11,6 +11,6 @@
 
 # 🔵𝙊𝙒𝙉𝙀𝙍 : 𝑴𝒆𝒓𝒅𝒊 𝑴𝒂𝒅𝒊𝒎𝒃𝒂
 
-# 𝙁𝘽 𝙇𝙄𝙉𝙆:https://www.facebook.com/merdi.madimba.39
+# 𝙁𝘽 𝙇𝙄𝙉𝙆:https://www.facebook.com/profile.php?id=61567813072795
 
 # 𝑴𝒆𝒓𝒄𝒊 𝒑𝒐𝒖𝒓 𝒗𝒐𝒕𝒓𝒆 𝒑𝒂𝒔𝒔𝒂𝒈𝒆
